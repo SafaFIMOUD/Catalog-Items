@@ -1,4 +1,3 @@
- 
 # Barbie: A Tale of Elegance and Adventure
 
 ## Introduction
