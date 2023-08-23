@@ -21,7 +21,7 @@ The film features the talented voice cast:
 
 ## Themes
 
-"Barbie: A Tale of Elegance and Adventure" explores several themes, including:
+"Barbie: A Tale of Elegance and Adventure" explores several themes, including :
 
 - **Friendship:** Rosella's bond with her animal friends teaches the value of loyalty and friendship.
 
