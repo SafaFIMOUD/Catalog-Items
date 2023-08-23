@@ -1,5 +1,5 @@
  
-# The Blind Side: A Story of Compassion and Football
+# The Blind Side: A Story of Football and Compassion
 
 ## Introduction
 
