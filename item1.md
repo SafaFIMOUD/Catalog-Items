@@ -34,3 +34,5 @@ Spider-Man has left an indelible mark on the superhero genre. It's celebrated fo
 Spider-Man is more than just a superhero film; it's a cultural phenomenon that has resonated with audiences of all ages. With its relatable hero, iconic costume, and timeless message, Spider-Man continues to swing through the hearts of fans, reminding us that anyone can be a hero.
 
 For an action-packed and emotionally charged cinematic experience, Spider-Man is a must-watch for both fans of the comics and newcomers to the world of web-slinging adventure.
+
+.
