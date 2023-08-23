@@ -38,3 +38,6 @@ Barbie movies are celebrated for their positive messages, empowering female char
 "Barbie: A Tale of Elegance and Adventure" is a delightful addition to the Barbie film series. With its engaging story, memorable characters, and beautiful animation, it continues to captivate audiences and remind them that dreams and adventures are always within reach.
 
 For an enchanting and heartwarming cinematic experience suitable for all ages, Barbie films are a perfect choice.
+
+
+.
